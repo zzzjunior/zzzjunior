@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zzzjunior
+- 👀 I’m interested in 💲💸🤑
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me juniorballeryt@gmail.com
